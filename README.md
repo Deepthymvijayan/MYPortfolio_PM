@@ -2,7 +2,7 @@
 
 **Deployment Project Manager**
 
-Mississauga, Ontario • (289) 623-2989 • deepthymvijayan@gmail.com • [LinkedIn](https://www.linkedin.com/in/yourprofile)
+Mississauga, Ontario • (289) 623-2989 • deepthymvijayan@gmail.com • [LinkedIn](https://www.linkedin.com/in/deepthymvijayan/)
 
 ---
 
